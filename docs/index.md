@@ -55,6 +55,4 @@ I have told you before You need to know that you will make all my dreams come tr
 
 
 
-[Link](https://raw.githubusercontent.com/pranavvm17/-/master/IMG-20190926-WA0002.jpg) and ![https://raw.githubusercontent.com/pranavvm17/-/master/IMG-20190926-WA0002.jpg](src)
-```
 
