@@ -54,6 +54,6 @@ I have told you before You need to know that you will make all my dreams come tr
 
 
 
-[Link](https://raw.githubusercontent.com/pranavvm17/-/master/IMG-20190926-WA0002.jpg) and ![https://pbs.twimg.com/profile_images/449852078823727104/62rjQ7My_400x400.jpeg](src)
+[Link](https://raw.githubusercontent.com/pranavvm17/-/master/IMG-20190926-WA0002.jpg) and ![https://raw.githubusercontent.com/pranavvm17/-/master/IMG-20190926-WA0002.jpg](src)
 ```
 
