@@ -48,7 +48,7 @@ You are such a perfect woman for me. I could barely meet someone better than you
 Whenever we are apart, have it in mind that you are always in my heart. I miss you, mehak and I want you to know that gaining your appreciation is my most significant feat. And I never thought I would say this to anyone.
 
 I have told you before You need to know that you will make all my dreams come true.
-![](IMG-20190926-WA0002.jpg)
+![](mehak.jpeg)
  
 
 
